@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with exclusive escape tsunami for brainrots Scripts, featuring teleport and unlimited stamina. Download now to dominate every match with
 
 
 
